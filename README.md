@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmilyD79
-- 👀 I’m interested in Anime
+- 👀 I’m interested in :pirate_flag: Kaizoku Ou ni, ore wa naru!
 - 🌱 I’m currently learning SQL
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @eMLo81
